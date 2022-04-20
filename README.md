@@ -13,7 +13,7 @@ López Ballester, Lucía
 
 lucylopezb1@gmail.com
 
-Tripoli, Natalia
+Trípoli, Natalia
 
 natalia.a.tripoli@gmail.com
 
