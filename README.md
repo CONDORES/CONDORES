@@ -33,4 +33,4 @@ gustavo.masera@gmail.com
 
 Gómez, Alejandro C.
 
-eclesur.masera@gmail.com
+eclesur@gmail.com
