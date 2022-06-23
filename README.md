@@ -1,4 +1,4 @@
-# Módulo1_2022
+# Módulo 1: Producción de Textos e Hipertextos
 # Integrantes
 
 Aguilera, José           
